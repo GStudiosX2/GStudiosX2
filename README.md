@@ -1,4 +1,6 @@
 ### Hi there 👋
+i would love if someone gives me ideas
+i cant come up with some
 
 <!--
 **lolBoi9696/lolBoi9696** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
